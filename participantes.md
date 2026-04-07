@@ -3,6 +3,6 @@
 ### 2026
 
 sfweber  
-mverardo565 
-rodri4410 
-NicolasRodriguez12
+mverardo565  
+rodri4410  
+NicolasRodriguez12 
